@@ -1,0 +1,1 @@
+# severstal_Internship2025
